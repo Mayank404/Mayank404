@@ -1,2 +1,2 @@
 
-![gif from nerdy.dev](https://github.com/https://gph.is/g/ZkkdWzm?raw=true)
+![gif from nerdy.dev](https://media.giphy.com/media/KNLTurtmQ348onnK4W/giphy.gif?raw=true)
