@@ -1,2 +1,2 @@
 
-![gif from nerdy.dev](https://media.giphy.com/media/KNLTurtmQ348onnK4W/giphy.gif?raw=true)
+![gif from nerdy.dev](https://giphy.com/gifs/KNLTurtmQ348onnK4W/html5?raw=true)
