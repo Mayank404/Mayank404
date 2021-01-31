@@ -1,2 +1,4 @@
 
-![gif from nerdy.dev](https://github.com/argyleink/argyleink/blob/master/argylein-sm2.gif?raw=true)
+
+![gif from mayank anand a learner](https://media.giphy.com/media/KNLTurtmQ348onnK4W/giphy.gif)
+
