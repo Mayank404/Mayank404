@@ -1,5 +1,5 @@
 
 
-< ![gif from mayank anand a learner](https://media.giphy.com/media/KNLTurtmQ348onnK4W/giphy.gif) align="middle"/>
+align="middle"![Gif](https://media.giphy.com/media/KNLTurtmQ348onnK4W/giphy.gif) 
 
 ![GitHub streak stats](https://github-readme-streak-stats.herokuapp.com/?user=mayank404)
